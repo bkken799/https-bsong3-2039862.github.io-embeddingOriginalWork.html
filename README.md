@@ -1,1 +1,1 @@
-# https-bsong3-2039862.github.io-embeddingOriginalWork.html
+# bsong3-2039862.github.io-embeddingOriginalWork.html
